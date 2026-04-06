@@ -1,2 +1,0 @@
-PaperPlayer Pro 暂定12月底发布
-全新尽在Fantongxue Software
